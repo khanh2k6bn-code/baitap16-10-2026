@@ -1,11 +1,31 @@
 ## Bai1
 
-<img width="715" height="359" alt="Ảnh chụp màn hình 2026-10-16 175722" src="https://github.com/user-attachments/assets/9d741d50-41ba-4ba4-a566-8658d71d9afc" />
+<img width="760" height="338" alt="Ảnh chụp màn hình 2026-10-16 191858" src="https://github.com/user-attachments/assets/6dbb7ffd-d500-470e-b43c-76f4548e211f" />
 
-<img width="713" height="344" alt="Ảnh chụp màn hình 2026-10-16 175738" src="https://github.com/user-attachments/assets/5f54df2a-559c-4aab-a4be-a67a54d67d11" />
 
-<img width="727" height="410" alt="Ảnh chụp màn hình 2026-10-16 175815" src="https://github.com/user-attachments/assets/d640da91-f8c5-4f0c-b25b-b83bcd10865a" />
 
-<img width="714" height="345" alt="Ảnh chụp màn hình 2026-10-16 175755" src="https://github.com/user-attachments/assets/9a42e04b-aa29-42f0-ad3a-6f14ada12020" />
+
+<img width="755" height="337" alt="Ảnh chụp màn hình 2026-10-16 192007" src="https://github.com/user-attachments/assets/c89a2001-7c82-42bf-85ae-7d58f1349dd8" />
+
+
+
+
+<img width="764" height="335" alt="Ảnh chụp màn hình 2026-10-16 192059" src="https://github.com/user-attachments/assets/24545d5b-976e-4000-8510-ff0664cd6d1f" />
+
+
+
+
+
+<img width="761" height="349" alt="Ảnh chụp màn hình 2026-10-16 192141" src="https://github.com/user-attachments/assets/a9f12c32-0bab-468e-a654-ec3733f4d95b" />
+
+
+
+
+
+
+
+
+
+
 
 
